@@ -1,0 +1,1 @@
+![teaser](https://aabarabanov.github.io/assets/images/leha_mnemo_teaser.PNG)
